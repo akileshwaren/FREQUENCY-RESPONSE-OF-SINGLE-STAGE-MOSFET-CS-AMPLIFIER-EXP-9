@@ -19,6 +19,7 @@
 ![WhatsApp Image 2025-11-13 at 18 33 51_b7be1eca](https://github.com/user-attachments/assets/1b283c06-9840-4b48-be01-e5e519e60d4c)
 
 
+
 # CALCULATION AND RESULT 
 ![WhatsApp Image 2025-11-21 at 21 07 35_e4a33728](https://github.com/user-attachments/assets/fac0650d-2c11-4ed0-ae8c-47166731e472)
 
