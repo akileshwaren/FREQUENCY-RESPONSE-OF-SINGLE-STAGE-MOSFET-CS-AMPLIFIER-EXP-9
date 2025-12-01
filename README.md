@@ -15,7 +15,6 @@
 
 # GRAPH
 
-
 ![WhatsApp Image 2025-11-13 at 18 33 51_b7be1eca](https://github.com/user-attachments/assets/1b283c06-9840-4b48-be01-e5e519e60d4c)
 
 
